@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi😃! I'm Saathvik Byreddy and I'm currently a freshman at the University of Maryland after graduating from Academies of Loudoun Specifically the Academy of Science and Independence High School. 
 
 <!--
 **saathby1122/saathby1122** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
